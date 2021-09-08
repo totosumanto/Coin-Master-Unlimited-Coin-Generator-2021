@@ -1,4 +1,4 @@
-Coin Master Unlimited Coin Generator 2021
+Coin Master Unlimited Coin Generator Update 2021
 ==================================================
 [[Updated September 8, 2021]] Coin Master Coin Generator Unlimited New Hack Tool 2020
 Click on the "Access Generator" button, and open the generator. Select the amount of "Coin Master Coin Hack New" you want to generate. A new pop-up will ask for your Coin Master Coin username, enter your username and click the button "Generate". Wait for the generator to finish the generating process.
